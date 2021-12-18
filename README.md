@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @FazilVinklo
 - 👀 I’m interested in Cranes, Shovels and Baustela in Deutschland
 - 🌱 I’m currently learning Bager und Mjesalica
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on Aka Busilica
+- 📫 How to reach me Cevapi und das Kajmak und Luk gebringen mit das Somun
 
 <!---
 FazilVinklo/FazilVinklo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
