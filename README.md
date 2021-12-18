@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FazilVinklo
-- 👀 I’m interested in Cranes, Shovels and Baustela in Deutschland
+- 👀 I’m interested in Cranes, Shovels und Baustela in Deutschland
 - 🌱 I’m currently learning Bager und Mjesalica
 - 💞️ I’m looking to collaborate on Aka Busilica
 - 📫 How to reach me Cevapi und das Kajmak und Luk gebringen mit das Somun
